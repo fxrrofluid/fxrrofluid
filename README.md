@@ -1,3 +1,4 @@
+Unpopular opinion; Pharah x Mercy actually sucks and shouldn't exist. Mercy players/mains/skins dni or it's an instant hide, that's just truth.
 <img width="828" height="350" alt="BLEEHHH" src="https://github.com/user-attachments/assets/24e5f82c-e6cd-4dc3-9505-9dc99ea781ed" />
                       
                       ❝ 함께 썩어가는거야 미쳐 아름답게말야 오직 너-랑나 단 둘만의 oh, my, sweet scar ❞
