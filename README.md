@@ -1,12 +1,14 @@
 My opinion; Pharah x Mercy actually sucks and shouldn't exist. Mercy players/mains/skins **DNI** or it's an instant hide.
-<img width="828" height="350" alt="BLEEHHH" src="https://github.com/user-attachments/assets/24e5f82c-e6cd-4dc3-9505-9dc99ea781ed" />
+<img width="1920" height="1155" alt="LUCY AND DAVID CRYING" src="https://github.com/user-attachments/assets/f30ebad7-d9eb-4d4f-9e49-e612ce817022" />
+
                       
-                      ❝ 함께 썩어가는거야 미쳐 아름답게말야 오직 너-랑나 단 둘만의 oh, my, sweet scar ❞
+               ❝ Because I miss you all the time.. So, get away. Another way to feel what you didn't want yourself to know,
+                                 and let yourself go. You know you didn't lose your self-control ❞
                       Hi !! Thanks for stopping by ! I'm Phlan, you can call me- uhm... Phlan LMAO.
                                            Hope you're having a good day < 3
 
 
 
 
- Very Sua coded rn, my wife dragged me into the pit of Alien Stage / Zombie Stage
+ Very Lucy coded rn, forced my wife to be David <333
 - psst please sign sp... I know you want too.. maybe- up to you !
