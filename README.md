@@ -10,5 +10,5 @@ My opinion; Pharah x Mercy actually sucks and shouldn't exist. Mercy players/mai
 
 
 
- Very Lucy coded rn, forced my wife to be David <333
+ Wait, I want to be Bela so bad... GEEULPPUUHH
 - psst please sign sp... I know you want too.. maybe- up to you !
