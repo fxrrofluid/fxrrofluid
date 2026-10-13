@@ -11,5 +11,6 @@ My opinion; Pharah x Mercy actually sucks and shouldn't exist. Mercy players/mai
 
 
 
- [Insert jorking off tail gif idk]
-- psst please sign sp... I know you want too.. maybe- up to you !
+
+
+                                            whimpering for my wife WHAT WHAT WHAAAAAT WHAAAT
