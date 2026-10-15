@@ -1,9 +1,10 @@
                  ❗❗I HATE PHARMERCY, I THINK IT'S CREEPY. MERCY X PHARAH DNI, OR IT'S A BLOCK AND HIDE❗❗
-<img width="2172" height="724" alt="image" src="https://github.com/user-attachments/assets/947b3aa8-77bd-41f3-ae63-4841bbedacb0" />
+<img width="200" height="113" alt="image" src="https://github.com/user-attachments/assets/d8b25f40-c13a-46e4-bb2f-a92e7d9015da" />
 <p align="center">
   <img width="554" height="554" alt="image" src="https://github.com/user-attachments/assets/7e06c50c-3d73-407c-abc4-2940ff5b09cd" />
 </p>
-<img width="2172" height="724" alt="image" src="https://github.com/user-attachments/assets/ba6781aa-6fcd-4c88-ae7a-5f896ddbce9c" />
+<img width="640" height="215" alt="image" src="https://github.com/user-attachments/assets/a131e829-0269-473d-9f8d-93a2a16e63b2" />
+
 
                                         ❝ Sorry. this hang over is killing me... ❞
                      Hi !! Thanks for stopping by ! I'm Phlan, you can call me- uhm... Phlan LMAO.
