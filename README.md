@@ -6,6 +6,7 @@
 
                                                    ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
                                          ❝ Sorry. this hang over is killing me... ❞
+                                *Dock Dweller - If I don't continue convo, might be distracted*
                         Hi !! Thanks for stopping by ! Tysm if you read my strawpage and draw on it <3
                                              Hope you're having a good day < 3
                                                    ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
