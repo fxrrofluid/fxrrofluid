@@ -1,12 +1,13 @@
                  ❗❗I HATE PHARMERCY, I THINK IT'S CREEPY. MERCY X PHARAH DNI, OR IT'S A BLOCK AND HIDE❗❗
                                                    ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 <p align="center">
-  <img width="554" height="554" alt="image" src="https://github.com/user-attachments/assets/7e06c50c-3d73-407c-abc4-2940ff5b09cd" />
+  <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/4824c038-e7b5-43bc-8963-0b5d8058e871" />
 </p>
 
                                                    ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
-                                         ❝ Sorry. this hang over is killing me... ❞
-                                *Dock Dweller - If I don't continue convo, might be distracted*
+                                  ❝ I want to slit your throat and eat you till I get sick ! ❞
+                        *Sick of Butcher's Vanity ? Listen to; Nectarine (Stone Heart) from ChulipPetals*
+                                *Or, Lemonade from worzy ! Anything but fucking CakeGirl.*
                         Hi !! Thanks for stopping by ! Tysm if you read my strawpage and draw on it <3
                                              Hope you're having a good day < 3
                                                    ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
