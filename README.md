@@ -14,3 +14,6 @@
                         Hi !! Thanks for stopping by ! Tysm if you read my strawpage and draw on it <3
                                              Hope you're having a good day < 3
                                                    ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
+
+          
+          ˚⊹₊ Check out my PonyFolio if you want... shrugs shyly
