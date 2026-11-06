@@ -1,4 +1,4 @@
-                              ❗❗I hate people who ship Miku x Teto, or even talk about -❗❗
+                         ❗❗I hate people who ship Miku x Teto, I also hate people who talk about -❗❗
                                  ❗❗- Cannibals having Feedism kinks, GET AWAY FROM ME.❗❗
                                                    ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 <p align="center">
